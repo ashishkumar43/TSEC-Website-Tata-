@@ -1,1 +1,1 @@
-# TSEC-Website-Tata-
+# TSEC Website Tata
